@@ -9,9 +9,9 @@ Use Trusted Bmovies Alternatives: Sites like the following have been thoroughly 
 
 | **SITES**                  | **Country**      | **Status**  | **Free or Paid** |
 |----------------------------|------------------|-------------|------------------|
-| [BMOVIES.COM](https://123moviesgohd.cc/?Putlocker) | United States   | **Alive** ✅  | Totally **FREE**  |
-| [123MOVIESGOHD.CC](https://123moviesgohd.cc/?Putlocker) | United States   | **Alive** ✅  | Totally **FREE**  |
-| [FMOVIESBEST.COM](https://fmoviesbest.com/?Putlocker)   | United States   | **Alive** ✅  | Totally **FREE**  |
+| [BMOVIES.COM](https://123moviesgohd.cc/?Bmovies) | United States   | **Alive** ✅  | Totally **FREE**  |
+| [123MOVIESGOHD.CC](https://123moviesgohd.cc/?Bmovies) | United States   | **Alive** ✅  | Totally **FREE**  |
+| [FMOVIESBEST.COM](https://fmoviesbest.com/?Bmovies)   | United States   | **Alive** ✅  | Totally **FREE**  |
 
 Choose Verified Streaming Sites: Stick to alternatives that are well-known for providing a secure environment. These platforms should have a reputation for offering high-quality content with minimal disruptions.
 
